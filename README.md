@@ -23,7 +23,7 @@ Here are some ideas to get you started:
 
 - 👨‍💻 All of my Socials are @[Linktree] **https://linktr.ee/sh4ddy**
 - 🌻 Learning Cyber Security, and computer science as well
-- ❤️‍🩹 One of us!
+- ❤️‍🩹 Inspired by the fear of being average..!
 
 
 
