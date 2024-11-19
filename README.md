@@ -13,7 +13,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-<h1 align="center">Hey I'm Sahil A.K.A Shaddy🤖 </h1>
+<h1 align="center">Hey I'm Sahil A.K.A 0xsh4ddy🤖 </h1>
 
 <h3 align="center">A Cyber Vigilante by the night👾</h3>
 
