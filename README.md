@@ -22,7 +22,7 @@ Here are some ideas to get you started:
 
 - 💬 Ask me about ** Networking, Linux and CTFs**
 
-- 👨‍💻 All of my Socials are @[Linktree] **https://linktr.ee/bandwidthlow**
+- 👨‍💻 All of my Socials are @[Linktree] **https://linktr.ee/bandwidthlow**   
 
 - 🌻 Learning Cyber Security, and computer science as well
 
